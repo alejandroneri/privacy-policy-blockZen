@@ -79,4 +79,4 @@ Cualquier cambio será publicado en esta página y entrará en vigor inmediatame
 
 Si tienes preguntas o inquietudes sobre esta Política de Privacidad, puedes contactarnos en:
 
-📧 anr140991@gmail.com
+anr140991@gmail.com
